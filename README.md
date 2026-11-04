@@ -1,1 +1,0 @@
-# ultraman-supernn.github.io
